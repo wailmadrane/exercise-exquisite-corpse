@@ -4,3 +4,8 @@ Akemi a été enlevée par un garçon qui se transforme en démon au contact de 
 
 Quelle idée de se battre en collant alors que le string est beaucoup plus confortable. De plus le collant est connu pour s'effiler très vite. Non, décidément, il faut éliminer ces personnes de mauvais goût.
 Koga et Ryoga se décident donc enfin à collaborer et aller chercher les autres porteurs de malédictions. Il enfilent leurs plus beaux string de combat et...
+
+Akemi se rappelle une **_formule_** que sa mère lui avait donné 10 ans auparavant : CH<sub>4</sub> + O<sub>2</sub> &rarr; CO<sub>2</sub> + 2 H<sub>2</sub>O.
+
+Pour annuler la formule de Akemi, Zhou va plutôt utiliser l'équilibre chimique : H<sub>2</sub> + &frac12; O<sub>2</sub> &rlarr; H<sub>2</sub>O
+
