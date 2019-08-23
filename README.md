@@ -9,10 +9,10 @@ Akemi se rappelle une **_formule_** que sa mère lui avait donné 10 ans auparav
 
 Pour annuler la formule de Akemi, Zhou va plutôt utiliser l'équilibre chimique : H<sub>2</sub> + &frac12; O<sub>2</sub> &rlarr; H<sub>2</sub>O
 
-Koga se rapelle que leurs adversaires détestent les choux. Il suffit donc de leur jeter des choux. Après tout qui aime manger les choux, personne bien évidemment\!
-La combinaison des trois attaques lancée en même temps se rencontre et crée une explosion qui souffle tout les participant sur le champs de bataille.
+Koga se rappelle que leurs adversaires détestent les choux. Il suffit donc de leur jeter des choux. Après tout qui aime manger les choux, personne bien évidemment\!
+La combinaison des trois attaques lancée en même temps se rencontre et crée une explosion qui souffle tous les participants sur le champ de bataille.
 
-Quand la fumée retombe et que tout le monde retrouve leur esprit, Akemi crie: "Bordel j'en ai marre, je n'ai pas que ça a faire. Je dois rentrer chez moi pour préparer des nouilles à la sauce framboise. Si je ne le fais pas, ma mère va me faire passer un sale quart d'heure\!"
+Quand la fumée retombe et que tout le monde retrouve leur esprit, Akemi crie: "Bordel j'en ai marre, je n'ai pas que ça à faire. Je dois rentrer chez moi pour préparer des nouilles à la sauce framboise. Si je ne le fais pas, ma mère va me faire passer un sale quart d'heure\!"
 
 Et sur les bonnes paroles d'Akemi, tout le monde se met en route vers leur propre maison.
 
